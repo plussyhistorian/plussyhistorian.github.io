@@ -1,0 +1,1 @@
+# Sasuke Uchiha Doesn't Say Swears/Sasuke Doesn't Say Racial Slurs
